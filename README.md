@@ -1,0 +1,2 @@
+- Nickname : Nongnoey
+- Favorite Food : Teenoi
